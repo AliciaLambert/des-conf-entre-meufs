@@ -1,4 +1,4 @@
-Nous partageons des centre d'intérêts communs (inclusivité, safitude…) et nous avons eu envie de réfléchir à ces sujets et pourquoi pas de fabriquer des Trucs pour les partager tout en s'amusant. 
+Nous partageons des centre d'intérêts communs (inclusivité, safitude…) et nous avons eu envie de réfléchir à ces sujets et pourquoi pas de fabriquer des Trucs pour les partager tout en s'amusantes. 
 
 L'idée est née comme ça suite à une discussion sur les Codes Of Conduct.  
 
